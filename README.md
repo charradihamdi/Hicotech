@@ -1,0 +1,13 @@
+# Hicotech
+![image](https://user-images.githubusercontent.com/76883216/229644458-18cca666-4905-411b-8f75-d152ad23416d.png)
+![image](https://user-images.githubusercontent.com/76883216/229644461-dae2f118-35e7-499f-913c-367e96d6ad01.png)
+![image](https://user-images.githubusercontent.com/76883216/229644472-da2dd5d6-a231-4962-b1cf-99ac4db3499b.png)
+![image](https://user-images.githubusercontent.com/76883216/229644478-63bcd240-81b0-48dc-92d7-5c0ce658d46c.png)
+![image](https://user-images.githubusercontent.com/76883216/229644484-93d7824b-b04d-481a-b708-0e3c59719de3.png)
+![image](https://user-images.githubusercontent.com/76883216/229644486-93c83175-c437-47a7-a00f-20df58060e14.png)
+![image](https://user-images.githubusercontent.com/76883216/229644490-c10cb2a5-ec4e-44df-b066-1d0b6c0f8de0.png)
+![image](https://user-images.githubusercontent.com/76883216/229644495-c5d956c2-8341-4df2-9283-498099ae70f8.png)
+![image](https://user-images.githubusercontent.com/76883216/229644501-ff5b3543-7149-4a18-a680-473e1e019da0.png)
+![image](https://user-images.githubusercontent.com/76883216/229644504-c3c6e25a-f008-4025-a702-b342e532291f.png)
+![image](https://user-images.githubusercontent.com/76883216/229644511-fba4c172-7af9-4720-ae0b-8add9a3f0083.png)
+![image](https://user-images.githubusercontent.com/76883216/229644513-462ffbff-b2de-4ca1-b782-d05950875c78.png)
